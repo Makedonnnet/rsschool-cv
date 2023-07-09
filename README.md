@@ -1,1 +1,1 @@
-https://Makedonnnet.github.io/rsschool-cv/cv
+https://Mgakedonnnet.github.io/rsschool-cv/cv
